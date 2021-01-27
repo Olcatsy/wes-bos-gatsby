@@ -77,7 +77,7 @@ After spending a summer in the New Mexico desert, August became passionate about
 
 Some say Waldo is searching for the freshest ingredients, but in reality pizza isn't a passion, it's a paycheck. Deep down, Waldo is still trying to find himself.
 
-Oak grows his own basil at home and brings it in. While he loves pizza, it pays the bills while he works on his hot sauce startup. Went his whole life calling the crust a "Pizza Border".
+  Oak grows his own basil at home and brings it in. While he loves pizza, it pays the bills while he works on his hot sauce startup. Went his whole life calling the crust a "Pizza Border".
 
 Louise runs an Etsy shop that sells hand-painted elephant ceramics customized based on your astrology sign. Judges you for ordering extra sauce.
 
